@@ -1,1 +1,0 @@
-# Ribosome_cell-growth
